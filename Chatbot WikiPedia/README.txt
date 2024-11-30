@@ -1,1 +1,0 @@
-Guide: do no scearch up "Who is Albert Einstein(example)" search only "Albert Einstein"
